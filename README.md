@@ -1,5 +1,5 @@
 what- 👋 Hi, I’m @iivv-byte
-- 👀 I’m interested in boobies
+- 👀 I’m interested in me
 - 🌱 I’m currently learning nufink.
 - 💞️ I’m looking to collaborate on TIKTOKKK
 - 📫 How to reach me bye me
